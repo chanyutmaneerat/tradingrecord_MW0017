@@ -1,2 +1,2 @@
-# tradingrecord_MW0017
+# MUDLEY WORLD 0017
 tradingrecord MUDLEY WORLD
